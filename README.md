@@ -21,4 +21,4 @@
 我们致力于为您提供稳定、安全、快速的日本AV资源站，让您无需付费即可畅享高清资源。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha2 ）</span>
